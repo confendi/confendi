@@ -1,1 +1,3 @@
-![image](https://www.gigaglitters.com/created/RaIEDROZDQ.gif)
+![alt text](https://64.media.tumblr.com/6eef376edb94507f5995a9861af00496/9f9a53fd70455743-8f/s75x75_c1/730ae34a0b3437f3e384f40d2bea2330a1e0ba56.gifv) ![alt text](https://64.media.tumblr.com/4894210f1eb6db31cfc8a2ea170083b0/f6ef2e1fdd666609-f3/s100x200/c1c48ebab867b2d769930dcc89d469888283f027.gifv) ![alt text](https://64.media.tumblr.com/40d69ed021225865b2d10f3412d510a5/ad68191878b5e9f9-aa/s75x75_c1/46a787f2cfb767d8e4ff48d12cbb21298fb56404.gifv) 
+
+![alt text](https://cdn.discordapp.com/attachments/1295556873931456533/1300135444234637394/Untitled128_20241027122606.png?ex=67225ffd&is=67210e7d&hm=a387e2d64f4e5d742ae95c042a6b639f4f5704dfa3327a69eface4448f742ffc&) ![alt text](https://cdn.discordapp.com/attachments/1295556873931456533/1295557219504619521/Untitled128_20241014183540.png?ex=672232ef&is=6720e16f&hm=93047f173b7149a33d93e137459b67cad22c73cebc5f9f8a9e96dc832e5f8250&)
